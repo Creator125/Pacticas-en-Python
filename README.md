@@ -1,0 +1,1 @@
+Estas tambien fueron practicas como tarea del colegio con el objetivo de aprender progamción
